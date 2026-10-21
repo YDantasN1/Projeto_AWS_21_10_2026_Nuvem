@@ -1,0 +1,1 @@
+# Projeto_AWS_21_10_2026_Nuvem
